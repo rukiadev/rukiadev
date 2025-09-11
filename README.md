@@ -2,7 +2,7 @@
 
 Bienvenid@ a mi perfil de GitHub.  
 
-[![Mi tarjeta interactiva](https://i.ibb.co/6JYmBkQ0/afiliados.jpg)](https://TU_USUARIO.github.io/perfil-rukia/)
+(https://rukiadev.github.io/perfil-rukia/)
 
 ---
 
