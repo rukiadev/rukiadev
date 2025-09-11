@@ -9,5 +9,5 @@
 
 ## Mis enlaces
 
-[<img src="URL_INSTAGRAM" width="24">](https://instagram.com/sonomorte)
-[<img src="URL_CODEPEN" width="24">](https://codepen.io/rukiadev)
+[<img src="https://cdn-icons-png.flaticon.com/128/3955/3955024.png" width="24">](https://instagram.com/sonomorte)
+[<img src="https://cdn-icons-png.flaticon.com/128/7083/7083977.png" width="24">](https://codepen.io/rukiadev)
