@@ -5,7 +5,7 @@
 - 🌸 Me gusta dibujar y diseñar  
 
 ---
-[![Mi tarjeta interactiva](https://medal.tv/games/screen-capture/clips/mNMrdUwfXAS9Z8qsZ?invite=cr-MSxld3csNjQ2NDE3Mjgz)](https://rukiadev.github.io/perfil-rukia/)
+[![Mi tarjeta interactiva](https://i.ibb.co/JRN5vhnm/getsitecontrol-convert-video-to-gif-free-2.gif)](https://rukiadev.github.io/perfil-rukia/)
 
 ## Mis enlaces
 
