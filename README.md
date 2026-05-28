@@ -5,7 +5,7 @@
 - 🌸 Me gusta dibujar y diseñar  
 
 ---
-[![Mi tarjeta interactiva](https://i.ibb.co/JRN5vhnm/presentaci-n.gif)](https://rukiadev.github.io/perfil-rukia/)
+[![Mi tarjeta interactiva](https://i.ibb.co/jnCFKpn/Screen-Recording-Made-with-Flex-Clip.gif)](https://rukiadev.github.io/perfil-rukia/)
 
 ## Mis enlaces
 
