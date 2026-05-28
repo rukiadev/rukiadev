@@ -5,7 +5,7 @@
 - 🌸 Me gusta dibujar y diseñar  
 
 ---
-[![Mi tarjeta interactiva](https://i.ibb.co/JRN5vhnm/getsitecontrol-convert-video-to-gif-free-2.gif)](https://rukiadev.github.io/perfil-rukia/)
+[![Mi tarjeta interactiva](https://ibb.co/SX2RtLN5)](https://rukiadev.github.io/perfil-rukia/)
 
 ## Mis enlaces
 
